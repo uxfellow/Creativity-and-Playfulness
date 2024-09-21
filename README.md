@@ -1,6 +1,12 @@
 # Why Being a Little Infantile is Actually Genius
 
-Anyone who's worked in tech or an office environment with designers of any kind has probably noticed a childlike vibe—action figures, stickers, and even things stuck to the ceiling! Once, I even came across a taxi driver with a dashboard full of toys and colorful lights decorating the ride. Of course, I couldn't resist asking him what his story was—it was clear he wasn't a typical taxi driver. And guess what I found out? Just as I suspected! The driver had once owned a quirky hat store in New York. He designed all the hats himself, and even his business card was anything but ordinary (if you could find it among the pile of toys).
+![Card Sorting](https://imgur.com/0rI1ETI.png)
+
+Anyone who's worked in tech or an office environment with designers of any kind has probably noticed a childlike vibe—action figures, stickers, and even things stuck to the ceiling! Once, I even came across a taxi driver with a dashboard full of toys and colorful lights decorating the ride. 
+
+![Driver Taxi Toys](https://imgur.com/r1ZN1PO.png)
+
+Of course, I couldn't resist asking him what his story was—it was clear he wasn't a typical taxi driver. And guess what I found out? Just as I suspected! The driver had once owned a quirky hat store in New York. He designed all the hats himself, and even his business card was anything but ordinary (if you could find it among the pile of toys).
 
 But why is this? I decided to do some research.
 
