@@ -17,9 +17,11 @@ I decided to try some of his exercises with my coworkers during our weekly happy
 
 ![BOB](https://imgur.com/r7LYBXW.png)
 
+To wrap up my presentation on creativity, I made “BOB KITS” for each teammate. At the end, I asked them to check under their seats, where they found toy guns to pair with the darts I’d included earlier. The room filled with laughter as everyone joined in the fun, embracing the playful spirit of creativity.
+
 ![BOB-KIT](https://imgur.com/PYDm6PP.png)
 
-One exercise involves asking participants to draw as many uses as possible for 30 circles within one minute. Sounds easy, right? At first, everyone draws balls, suns, and flowers, but the last ten circles are where things get interesting.
+Another exercise involves asking participants to draw as many uses as possible for 30 circles within one minute. Sounds easy, right? At first, everyone draws balls, suns, and flowers, but the last ten circles are where things get interesting.
 
 ![BOB-30-Circles](https://imgur.com/Ao6uXg1.png)
 
